@@ -1,6 +1,6 @@
-Hi, I am Lion 
+Hi, I am Lion 😊 
 
-![](https://komarev.com/ghpvc/?username=snow2405&label=You+are+the&color=blueviolet)th visitor of this page 😊 - So nice of you to stop by ❤️. 
+![](https://komarev.com/ghpvc/?username=snow2405&label=You+are+the&color=blueviolet)th visitor of this page - So nice of you to stop by ❤️. 
 
 I've been coding since my early teen years and love to create products on- and offline 🛠️. 
 
