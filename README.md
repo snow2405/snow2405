@@ -6,4 +6,4 @@ I've been coding since my early teen years and love to create products on- and o
 
 Feel free to reach out at hey@lionsix.ch ✉️ and I'll make sure to get in contact with you immediately 🏃!
 
-![](https://komarev.com/ghpvc/?username=snow2405&label=YOUR+LUCKY+NUMBER&color=blueviolet)
+![](https://komarev.com/ghpvc/?username=snow2405&label=Profile+views&color=blueviolet)
